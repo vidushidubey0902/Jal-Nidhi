@@ -1,2 +1,2 @@
-# Jal--idhi
+# Jal-Nidhi
 SIH PROJECT 2023
